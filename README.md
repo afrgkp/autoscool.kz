@@ -1,0 +1,2 @@
+# autoscool.kz
+firstfinal
